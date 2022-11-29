@@ -801,3 +801,165 @@ This is a Carlos Ferrera. He's 35 years old and he's Portguese. He's from Porlo,
 - 6) on the corner
 - 7) between
 - 8) in/on
+
+
+### Module 6A
+
+#### (1a)
+- Sally - sister
+- Jake - brother
+- Joanne - mother
+- Michael - father
+- Evelyn - grandmother
+- William - grandfather
+- John - Uncle
+- Yvonne - aunt
+- Beatrice - cousin
+
+#### (1b)
+
+- 2) grandparents
+- 3) uncle
+- 4) brother
+- 5) aunts
+- 6) sister
+
+#### (2a)
+
+- 1) was
+- 2) Were, wasn't
+- 3) was wasn't
+- 4) wasn't, was
+- 5) Were, were, was
+- 6) were
+
+#### (2b)
+
+- 2) Were, were
+- 3) weren't, were
+- 4) were, was
+- 5) Were, weren't, were
+- 6) was
+
+### Module 6B
+
+#### (1a)
+
+- 2) was
+- 3) separated
+- 4) was
+- 5) lived
+- 6) visited
+- 7) taught
+- 8) bought
+- 9) died
+- 10) went
+- 11) left
+- 12) met
+- 13) started
+- 14) became
+- 15) wrote
+
+#### (1b)
+
+- 2) stopped, gave
+- 3) was, died
+- 4) found, took
+- 5) went, spent
+- 6) made, ate
+- 7) played, bought
+- 8) worked, got
+
+#### (2a)
+
+- 2) went, has
+- 3) came, brought
+- 4) read, thought
+- 5) made, ate
+- 6) got, gave
+
+### Module 6C
+
+#### (1a)
+
+- 4) call me back
+- 5) on my mobile
+- 6) lan's phone
+- 7) there
+- 8) isn't hete
+- 9) it's
+- 10) Can be
+- 11) I'll tell
+- 12) back soon
+- 13) a minute
+- 14) It's me 
+
+#### (1c)
+
+- 2) Can you call me back this afternoon?
+- 3) Can you wait a minute?
+- 4) You can call me on my house phone or my mobile.
+- 5) I'm not here right now.
+- 6) Sorry, she isn't here just now.
+
+### Module 6D
+
+#### (1a)
+- 2
+
+#### (1b)
+- T: 1, 5
+- F: 2, 3, 4
+
+#### (2a)
+- 2) Four years later
+- 3) in 2005
+- 4) When she was
+- 5) in 2006
+- 6) in 2007
+- 7) in 2008
+- 8) When
+- 9) in 2009
+- 10) a year later
+
+### Module 6 Reading
+
+#### (1a)
+
+- 2) 2
+- 3) 4
+- 4) 3
+- 5) 1
+
+#### (1b)
+
+- 2) a
+- 3) c
+- 4) c
+- 5) a
+- 6) c
+
+### Module 6 Review
+
+#### (1a)
+
+- 2) I paid for the meal with my credit card
+- 3) He ate all vegetables
+- 4) They enjoyed the film very much.
+- 5) Were you at work yesterday?
+- 6) The ticket was very expensive. ...
+
+#### (2a)
+- 2) He told me his name was Sergio
+- 3) They made me a delicious chocolate cake.
+- 4) Daisy gave me a ticket for the concert yesterday!
+- 5) Last month, we won a trip to Paris.
+- 6) I read the paper and then I did the crossword.
+
+#### (3a)
+
+- 2) for
+- 3) by
+- 4) home
+- 5) for
+- 6) shopping
